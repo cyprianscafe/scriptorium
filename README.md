@@ -38,6 +38,16 @@ Se você tiver dúvidas sobre as escolhas de tradução de termos específicos e
 ---
 
 <p align="center">
+  <samp>🌐 <b>REDE DE ARQUIVOS</b> 🌐</samp><br>
+ Navegue pelas diferentes prateleiras do acervo público:
+</p>
+  🏛️ <a href="https://github.com/cyprianscafe/biblioteca-de-babel"><b>Biblioteca-de-Babel</b></a> (Excertos & Meta-Religião) <br>
+  🔮 <a href="https://github.com/cyprianscafe/ars-oculta"><b>Ars-Oculta</b></a> (Esoterismo & Alta Magia) <br>
+</p>
+
+---
+
+<p align="center">
   <small><i>"Ben Zoma dizia: Quem é sábio? Aquele que aprende com todas as pessoas."</i><br>
   — Pirkei Avot 4:1</small>
 </p>
