@@ -19,12 +19,12 @@ No entanto, vós nos prendeis firmemente em vossa compaixão.
 Embora estejais dotado para sempre  
 De uma equanimidade de paz, no entanto vós acalentais,  
 Acalentando os outros em meio à renúncia de vós mesmo.  
-Curvo-me humildemente aos Pés Sagrados de Manjugosha e  
+Curvo-me humildemente aos Pés Sagrados de Manjushri e  
 Ofereço louvores de admiração ao Protetor Invencível.  
 
 Vós sois estimado na fala de Brahma de quatro faces  
 E contemplado pelos mil olhos de devoção de Indra.  
-Senhor do Amor - Kama, possuidor da bela Rati,  
+Kama, o Senhor do Amor, possuidor da bela Rati,  
 Curva-se a vós sem qualquer orgulho, e eu humildemente me curvo  
 Em respeito, aos pés do Regente do Conquistador.  
 
@@ -34,20 +34,20 @@ Como um jardim de lírios-kundali florescendo
 No céu limpo está o Senhor da constelação de estrelas,  
 Assim também é a visão de vosso Corpo Sagrado,  
 Ornado com sinais e exemplificações,  
-Capturando os corações de todos os migrantes no momento em que é visto.  
+Capturando os corações de todos os errantes no momento em que é visto.  
 
 Que eu possa nascer aos Vossos Pés de Lótus, Ó Protetor Maitreya,  
-And em todas as minhas vidas possais vós adornar a coroa da minha cabeça.  
+E em todas as minhas vidas possais vós adornar a coroa da minha cabeça.  
 Destruidor do mal, vós estais livre do ambiente de todos os estados de medo.  
 Mestre Supremo, Vós sois um  
 Herói incomparável dos três reinos.  
-Por favor, vigiai-nos continuamente, pois somos migrantes  
+Por favor, vigiai-nos continuamente, pois somos errantes  
 Que caíram nos perigos.  
 Prostro-me aos Vossos Pés de Lótus, Ó Líder Compassivo.  
 
 Vós acessais sem obstrução  
 Todos os ilimitados objetos de conhecimento.  
-Vós conquistais com vossa poderosa oniociência o horror do exército do mal,  
+Vós conquistais com vossa poderosa onisciência o horror do exército do mal,  
 Cujas armas de raios caem diante de vós como flores frescas, e  
 Vós os derrotais com a glória radiante de vossos dez poderes.  
 Vós crestais os cérebros altivos de vossos oponentes  
@@ -59,11 +59,11 @@ Com o discurso de sua falsa filosofia.
 Dotado dos quatro estados de destemor,  
 Vós sois um leão entre os homens.  
 
-A suprema roda do Dharma que não pode ser expressa por ninguém,  
+A suprema roda do Dharma que não pode ser detida,  
 Inabalável até mesmo pelo orgulhoso Criador do Mundo, senhor das paixões,  
 E nem mesmo por sacerdotes, ascetas, aqueles que treinam na virtude e assim por diante,  
 Mas Vós, como um Guardião com amorosa bondade,  
-Girai a roda do Dharma para os migrantes.  
+Girai a roda do Dharma para os errantes.  
 
 Nem mesmo o nome de "erro" afeta Vosso Corpo e Fala Sagrados.  
 Vós permaneceis em equanimidade para sempre, com uma memória que nunca declina.  
@@ -76,7 +76,7 @@ Portanto, vossas realizações são insuperáveis.
 
 Vós conheceis todos os três tempos sem obstrução e apego.  
 As atividades de vosso santo corpo, fala e mente são completamente puras.  
-Vós realizais benefícios para os migrantes até o fim da existência cíclica.  
+Vós realizais benefícios para os errantes até o fim da existência cíclica.  
 Vós vos engajais com alegria nas responsabilidades de vossos atos.  
 Vós aperfeiçoastes plenamente os agregados de extensas qualidades.  
 Vós destruístes qualquer chance de incorrer na menor falha.  
@@ -104,7 +104,7 @@ Por favor, concedei-me, a mim que sou tão iludido, vossa compaixão oportuna.
 
 Que necessidade há de mencionar o estado de libertação definitiva  
 Quando não tenho a confiança para alcançar sequer um renascimento elevado,  
-O qual é louvado pelos Capazes como a base do caminho?  
+O qual é louvado pelos Sábios como a base do caminho?  
 Não ireis conceder-me vossa equanimidade?  
 
 Embora eu tenha um corpo dotado da glória de um renascimento superior,  
@@ -127,8 +127,8 @@ Assim, para sobreviver, eu até corto e como minha própria carne.
 
 Envoltos por uma grande escuridão de ignorância,  
 Sem a capacidade de discriminar o certo do errado,  
-Matando uns aos outros, controlados por objetivos e seres famintos,  
-Metralhados pelos sofrimentos de serem espancados e sobrecarregados.  
+Matando uns aos outros, controlados por aguilhões e seres famintos,  
+Transpassados pelos sofrimentos de serem espancados e sobrecarregados.  
 Toda a paz de espírito é destruída por um fogo ardente  
 De um ciúme consumidor, perturbado pela glória dos deuses.  
 O corpo é retalhado e perdido na luta,  
@@ -155,7 +155,7 @@ Que são vivenciadas em todos os vários aspectos.
 Com corpos belos adornados de ornamentos joados  
 Em palácios celestiais, cercados por jardins de prazer,  
 Desfrutando por muito tempo dos prazeres do desejo.  
-Mesmo como os deuses-deva, ostentando la glória de um renascimento superior,  
+Mesmo como os deuses-deva, ostentando a glória de um renascimento superior,  
 Quando sou tomado pelos sinais da morte indesejada,  
 Perco a cabeça e meu coração simplesmente para.  
 Quando vejo que muito em breve, involuntariamente, terei que me separar  
@@ -216,14 +216,14 @@ Considerando esta situação, por favor, limpai a escuridão do meu coração.
 Na presença das ciências ensinadas pelos Conquistadores e seus Filhos,  
 Estenderei um oceano de aprendizado ao longo de muitas vidas diferentes  
 E então despertarei excelentemente as marcas das práticas repetidas vezes.  
-Vós sois o único olho que revela o caminho afortunado para os migrantes.  
+Vós sois o único olho que revela o caminho afortunado para os errantes.  
 
 Abandonado por todos os seres puros do passado,  
 Estou perdido por estar separado de um protetor,  
 Tornando-me como um hóspede que chega de uma região distante.  
 É hora de cuidardes de mim com vossa grande bondade.  
 Vós sois o refúgio ao qual me volto humildemente repetidas vezes.  
-Vós sois o Amor-Maitreya, com Vosso grande amor por todos os migrantes,  
+Vós sois o Amor-Maitreya, com Vosso grande amor por todos os errantes,  
 Vindo rapidamente e cada vez mais rápido, por favor, tornai-vos meu.  
 Meu amigo virtuoso do Mahayana em vida após vida.   
 
@@ -233,9 +233,9 @@ Quem quer que recorde com uma mente de fé vossas excelentes qualidades,
 Diariamente, vós vireis a eles.  
 
 Em um lugar distante, a fim de vivenciar todo  
-O sabor da solidão no lugar de um campo afortunado,  
+O sabor da solidão no lugar de um Campo de Mérito,  
 Embora eu deseje me engajar, sou fisicamente incapaz de fazê-lo;  
-Assim, Vós sois o campo de mérito mais sagrado.  
+Assim, Vós sois o Campo de Mérito mais sagrado.  
 Para agradar-Vos com pensamentos extraordinariamente puros,  
 Com joias, pepitas de ouro e sedas celestiais,  
 Com as vestes de árvore, o cajado de monge e a tigela de asceta,  
@@ -246,19 +246,33 @@ Assim completamente preenchida e oferecida ao Senhor Chefe dos Humanos,
 Com uma mente desapegada e livre de expectativas.  
 
 ---
+
 <details>
   <summary>Tags e outras nerdices</summary>
   
   ### Dados de Arquivo
-  - **Categoria Secundária:** Poesia Devocional / Preces e Louvores (Gati)
-  - **Manuscrito de Origem:** O Grande Louvor ao Buda Maitreya (originalmente composto no eremitério de Lho Brag)
-  - **Linhagem/Tradição:** Budismo Tibetano / Tradição Gelug (escola fundada pelo autor, Tsongkhapa).
-  - **Período Histórico:** Século XIV / Literatura Tibetana Clássica (Composto em 1395).
-  - **Autor:** Je Lama Tsongkhapa
-  - **PA Source:** BS-2
-  - **Data da tradução:** N/A
-  - **Status do Texto:** Tradução Integral (Sem omissões).
-  - **Idioma original:** Tibetano>Inglês>Português
-  - **Palavras-chave adicionais:** Buda Maitreya, Tsongkhapa, Tushita, Compaixão, Renascimento, Samsara, Budismo Tibetano, Gelug, Impermanência, Práticas de Purificação
+  - **Formato do Material:** Texto Íntegro
+  - **Linhagem/Tradição:** Budismo Tibetano (Tradição Gelug, embora a obra dialogue com o budismo tardio na Índia e as escolas do Tibete em geral)
+  - **Período Histórico:** Século XIV (1395)
+  - **Autor:** Je Lama Tsongkhapa (Lobsang Drakpa)
+  - **Manuscrito de Origem:** Coletânea de Obras de Tsongkhapa (Sungbum / gsung 'bum). O texto é tradicionalmente conhecido em tibetano como Byams chen bstod pa (O Grande Louvor ao Grande Amoroso/Maitreya).
+  - **Idioma Original:** Tibetano clássico
+  - **Região:** Tibete (Composto especificamente no eremitério de Lho Brag / Lhodrak)
+  - **Grau de Confiabilidade:** Fonte Primária Acadêmica / Texto Canônico da Tradição Gelug
+  
+  ### Bastidores da Tradução
+  - **Data da Tradução:** N/A
+  - **Projeto:** N/A
+  - **Status do Texto:** Traduzido integralmente (Concluído)
+  - **Shelfmark ID:** SC-BUD-002
+  - **Notas de Tradução/Desafios:** Nota-se que o termo "_Maitreya_" é traduzido livremente em algumas estrofes como "Amor" devido à etimologia do nome (_Byams pa_ em tibetano, que significa amor/bondade amorosa).
+
+  ### Conexões e Busca
+  - **Categoria Secundária:** Literatura de Aspiração (_Pranidhana_) e Poesia Devocional (_Stotra_)
+  - **Tópicos Transversais:** Lamrim (Estágios do Caminho), Sofrimento no Samsara (Seis Reinos), Devoção ao Guru/Deidade, e a vinda do próximo Buda Cósmico
+  - **Tags Principais:** Buda Maitreya, Je Lama Tsongkhapa, Tushita, Dharma, Compaixão, Sabedoria, Samsara, Reinos Infernais, Renascimento Superior, Equanimidade
+  - **Tags Adicionais:** Budismo Tibetano, Gelug, Lhodrak, Poesia Budista, Práticas de Aspiração, Devoção, Escatologia Budista, Próximo Buda
+
+💬 *Gostaria de ver um texto específico traduzido ou catalogado por aqui? Pedidos de tradução e buscas de fontes estão sempre abertos! Envie sua sugestão no meu [Ask Box (Cyprian's Cafe)](https://cyprianscafe.tumblr.com/askme).*
   
 </details>
