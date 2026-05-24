@@ -1,4 +1,4 @@
-<h1 align="center">O Grande Louvor ao Buda Maitreya</h1>
+<h1 align="center">✧ O Grande Louvor ao Buda Maitreya ✧</h1>
 <p align="center"><i>por Je Lama Tsongkhapa no eremitério de Lho Brag em 1395.</i></p>
 
 Que o fogo da grande amorosa bondade  
