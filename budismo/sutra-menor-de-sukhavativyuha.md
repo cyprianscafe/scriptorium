@@ -2,7 +2,7 @@ O **Sutra Menor de Sukhavativyuha** (também conhecido como Sutra de Amida) é u
 
 ---
 
-<h1 align="center">O Sutra Menor de Sukhavativyuha</h1>
+<h1 align="center">✧ O Sutra Menor de Sukhavativyuha ✧</h1>
 <h2 align="center">ou O Sutra sobre o Buda Amitayus</h2>
 
 1. Assim ouvi: Certa vez, o Buda residia no Jardim Anathapindada de Jetavana, no país de Shravasti, junto a uma grande assembleia de Bhikshus de mil duzentos e cinquenta membros. Todos eles eram grandes Arhats, bem conhecidos entre as pessoas, (a saber): Shariputra, o ancião, Mahamaudgalyayana, Mahakashyapa, Mahakatyayana, Mahakaushthila, Revata, Shuddhipanthaka, Nanda, Ananda, Rahula, Gavampati, Pindola-Bharadvaja, Kalodayin, Mahakapphina, Vakkula, Aniruddha, etc., todos grandes Shravakas [lit. discípulos]; e com muitos Bodhisattva-Mahasattvas, (tais como), Manjushri, Príncipe do Senhor da Verdade, Bodhisattva Ajita, Bodhisattva Gandhahastin, Bodhisattva Nityodyukta, etc., todos grandes Bodhisattvas; e também com uma grande assembleia de inumeráveis devas, (tais como) Shakrodevanam-Indra, etc.
@@ -42,18 +42,34 @@ O **Sutra Menor de Sukhavativyuha** (também conhecido como Sutra de Amida) é u
 Tendo o Buda pregado este Sutra, Shariputra e os Bhikshus, e os Devas, homens, Asuras, etc., de todos os mundos, que ouviram a pregação do Buda, acreditaram e aceitaram com alegria, prestaram adoração e se retiraram.
 
 ---
+
 <details>
   <summary>Tags e outras nerdices</summary>
   
   ### Dados de Arquivo
-  - **Categoria Secundária:** Budismo Mahayana / Textos da Terra Pura (*Pure Land*)
-  - **Manuscrito de Origem:** N/A
-  - **Autor:** Atribuído tradicionalmente ao Buda Shakyamuni (registrado por seus discípulos, frequentemente associado a Ananda)
-  - **PA Source:** BS-1
-  - **Data da tradução:** 19.05.2026
-  - **Idioma original:** RTST (C-E-I)
-  - **Palavras-chave adicionais:** Sukhavati, Terra Pura, Buda Amitabha, Amitayus, Sutra de Amitabha, Budismo, Sutra Curto, Iluminação, Recitação do Nome (Nianfo/Nembutsu)
+  - **Formato do Material:** Texto Íntegro
+  - **Linhagem/Tradição:** Budismo Mahayana / Terra Pura
+  - **Período Histórico:** Século V d.C. (especificamente por volta de 402 d.C., data atribuída à tradução de Kumarajiva para o chinês). O texto original em sânscrito estima-se ter sido composto entre os séculos I e II d.C.
+  - **Autor:** Atribuído tradicionalmente ao Buda Shakyamuni (Gautama Buda). O tradutor histórico do sânscrito para o chinês clássico foi o mestre Kumarajiva.
+  - **Manuscrito de Origem:** Cânone Budista Chinês (Taishō Tripiṭaka, listado especificamente como T366).
+  - **Idioma Original:** Sânscrito
+  - **Região:** Noroeste da Índia / Ásia Central (composição original); Chang'an, China (local da tradução histórica).
+  - **Grau de Confiabilidade:** Fonte Primária Acadêmica / Texto Canônico
+  
+  ### Bastidores da Tradução
+  - **Data da Tradução:** 05.2026
+  - **Projeto:** N/A
+  - **Status do Texto:** Traduzido integralmente (Concluído)
+  - **Shelfmark ID:** SC-BUD-001
 
- *Traduzido por Bat Zion com amor (e ódio).*
+  **Agradecimento especial ao irmão Harsh H., de Pune, Índia, por ajudar com muitos termos difíceis em sânscrito.**
+
+  ### Conexões e Busca
+  - **Categoria Secundária:** Escatologia Budista, Soteriologia Mahayana, Práticas Devocionais e Meditativas
+  - **Tópicos Transversais:** Cosmologia budista (sistemas de mundos e terras puras), o papel dos pássaros e da música como veículos de transmissão do Dharma, e a natureza da transferência de mérito/salvação pela fé face ao carma individual
+  - **Tags Principais:** Sukhavati, Buda Amitabha, Amitayus, Shariputra, Terra Pura, Kumarajiva, Arhat, Bodhisattva, Anuttara-samyaksambodhi, Cinco Corrupções, Shravasti
+  - **Tags Adicionais:** Soteriologia, Budismo Chinês, Nembutsu, Recitação de Nome, Cosmologia Budista, Budismo Asiático, Meditação da Mente Unificada, Compaixão Universal
+
+💬 *Gostaria de ver um texto específico traduzido ou catalogado por aqui? Pedidos de tradução e buscas de fontes estão sempre abertos! Envie sua sugestão no meu [Ask Box (Cyprian's Cafe)](https://cyprianscafe.tumblr.com/askme).*
   
 </details>
