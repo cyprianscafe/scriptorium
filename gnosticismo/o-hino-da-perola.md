@@ -729,7 +729,6 @@ que ele proferiu na prisão, está terminado."
   - **Data da Tradução:** N/A
   - **Projeto:** N/A
   - **Status do Texto:** Traduzido integralmente (Concluído)
-  - **Ações Pendentes:** (Correções, notas importantes, mudanças de formatação, erros de tradução que precisam ser corrigidos, termos que poderiam ser traduzidos de forma mais efetiva, etc.)
   - **Notas de Tradução/Desafios:** A primeira versão opta por uma cadência mais poética e solene (_"Manto Glorioso", "Serpente de respiração ruidosa"_), enquanto a segunda (baseada na tradução de William Wright) adota um tom mais bruto e literal. Há também divergências na tradução de termos mineralógicos do siríaco antigo, como a oscilação entre "Ágatas", "Ópalas" e "Rubis" para designar as joias do Manto, exigindo uma futura revisão crítica. Decidi traduzir "como está", principalmente por priorizar a disponibilidade das duas versões em português. Talvez no futuro eu faça um trabalho melhor. Talvez. Quem sabe?
 
   ### Conexões e Busca
