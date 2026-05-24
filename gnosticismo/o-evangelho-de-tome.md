@@ -28,7 +28,7 @@ Estes são os ditados secretos que o Jesus vivo pronunciou e Dídimo Judas Tomé
 
 2. Jesus disse: "Aquele que busca não deve parar de buscar até encontrar. Quando encontrar, ficará perturbado. Quando ficar perturbado, ficará maravilhado e reinará sobre tudo. [E depois que reinar, descansará.]"
 
-3. Jesus disse: "Se os vossos líderes vos disserem: 'Vejam, o reino (do Pai) está no céu', então as aves do céu vos precederão. Se vos disserem: 'Está no mar', então os peixes vos precederão. Pelo contrário, o reino (do Pai) está dentro de vós e está fora de vós.  
+3. Jesus disse: "Se os vossos líderes vos disserem: 'Vejam, o reino está no céu', então as aves do céu vos precederão. Se vos disserem: 'Está no mar', então os peixes vos precederão. Pelo contrário, o reino está dentro de vós e está fora de vós.  
 4. Quando vos conhecerdes, então sereis conhecidos e compreendereis que sois filhos do Pai vivo. Mas, se não vos conhecerdes, vivereis na pobreza, e vós sereis a pobreza."
 
 5. Jesus disse: "A pessoa idosa em dias não hesitará em perguntar a uma criancinha de sete dias sobre o lugar da vida, e essa pessoa viverá. Pois muitos dos primeiros serão os últimos, e se tornarão um só."
@@ -72,14 +72,14 @@ Jesus disse: "Já encontrastes o começo, então, para estardes procurando o fim
 
 20. Jesus disse: "Parabéns àquele que veio a existir antes de vir a existir. Se vos tornardes meus discípulos e prestardes atenção aos meus ditados, estas pedras vos servirão. Pois existem cinco árvores no Paraíso para vós; elas não mudam, no verão ou no inverno, e as suas folhas não caem. Quem as conhecer não provará a morte."
 
-21. Os discípulos disseram a Jesus: "Diz-nos com o que se parece o reino do Céu."  
+21. Os discípulos disseram a Jesus: "Diz-nos com o que se parece o reino."  
 Ele disse-lhes: "É como uma semente de mostarda, a menor de todas as sementes, mas quando cai em solo preparado, produz uma planta grande e se torna um abrigo para as aves do céu."
 
 22. Maria disse a Jesus: "Com o que se parecem os teus discípulos?"  
 Ele disse: "Eles são como criancinhas vivendo num campo que não é delas. Quando os donos do campo vierem, dirão: 'Devolvei-nos o nosso campo.' Elas tiram as roupas diante deles para devolver-lhes e restituem o campo. Por esta razão eu digo: se os donos de uma casa souberem que um ladrão está chegando, ficarão de guarda antes que o ladrão chegue e não deixarão o ladrão arrombar a sua casa (o seu domínio) e roubar os seus bens. Vós, portanto, ficai de guarda contra o mundo. Preparai-vos com grande força, para que os assaltantes não encontrem uma maneira de chegar até vós, pois a aflição que esperais virá. Que haja entre vós uma pessoa que compreenda. Quando a colheita amadureceu, ele veio rapidamente trazendo uma foice e a colheu. Quem tiver dois ouvidos aqui, que ouça!"
 
-23. Jesus viu alguns bebês mamando. Ele disse aos seus discípulos: "Estes bebês que mamam são como aqueles que entram no reino (do Pai)."   
-Eles disseram-lhe: "Então entraremos no reino (do Pai) como bebês?"   
+23. Jesus viu alguns bebês mamando. Ele disse aos seus discípulos: "Estes bebês que mamam são como aqueles que entram no reino."   
+Eles disseram-lhe: "Então entraremos no reino como bebês?"   
 Jesus disse-lhes: "Quando fizerdes dos dois um, e quando fizerdes o interior como o exterior e o exterior como o interior, e o superior como o inferior, e quando fizerdes o masculino e o feminino em um só, de modo que o masculino não seja masculino nem o feminino seja feminino, quando fizerdes olhos no lugar de um olho, uma mão no lugar de uma mão, um pé no lugar de um pé, uma imagem no lugar de uma imagem, então entrareis [no reino]."
 
 24. Jesus disse: "Eu vos escolherei, um entre mil e dois entre dez mil, e eles permanecerão como um só."
@@ -91,7 +91,7 @@ Ele disse-lhes: "Quem tiver dois ouvidos aqui, que ouça! Há luz dentro de uma 
 
 27. Jesus disse: "Vês o cisco no olho do teu amigo, mas não vês a trave no teu próprio olho. Quando tirares a trave do teu próprio olho, então verás bem o suficiente para remover o cisco do olho do teu amigo."
 
-28. "Se não jejuardes do mundo, não encontrareis o reino (do Pai). Se não observardes o sábado como sábado, não vereis o Pai."
+28. "Se não jejuardes do mundo, não encontrareis o reino. Se não observardes o sábado como sábado, não vereis o Pai."
 
 29. Jesus disse: "Tomei a minha posição no meio do mundo, e em carne lhes apareci. Encontrei-os a todos embriagados, e não encontrei nenhum deles com sede. A minha alma doeu pelos filhos da humanidade, porque são cegos em seus corações e não veem, pois vieram vazios ao mundo e também procuram partir vazios do mundo. Mas, enquanto isso, estão bêbados. Quando sacudirem o seu vinho, então mudarão os seus caminhos."
 
@@ -131,7 +131,7 @@ Jesus disse: "Quando vos despirdes sem vos envergonhardes, e pegardes as vossas 
 
 46. Jesus disse: "Não se colhem uvas de espinheiros, nem se colhem figos de cardos, pois eles não dão fruto. As pessoas boas produzem o bem daquilo que armazenaram; as pessoas más produzem o mal da maldade que armazenaram em seus corações e dizem coisas más. Pois do transbordamento do coração elas produzem o mal."
 
-47. Jesus disse: "Desde Adão até João Batista, entre os nascidos de mulher, ninguém é tão maior que João Batista que os seus olhos não devam ser desviados. Mas eu disse que quem quer que entre vós se torne como uma criança reconhecerá o reino (do Pai) e se tornará maior do que João."
+47. Jesus disse: "Desde Adão até João Batista, entre os nascidos de mulher, ninguém é tão maior que João Batista que os seus olhos não devam ser desviados. Mas eu disse que quem quer que entre vós se torne como uma criança reconhecerá o reino e se tornará maior do que João."
 
 48. Jesus disse: "Uma pessoa não pode montar dois cavalos ou retesar dois arcos. E um escravo não pode servir a dois senhores; caso contrário, esse escravo honrará a um e ofenderá ao outro. Ninguém bebe vinho velho e quer imediatamente beber vinho novo. O vinho novo não é colocado em odres velhos, para que não arrebentem; e o vinho velho não é colocado em um odre novo, para que não se estrague. Um remendo velho não é costurado em uma veste nova, pois criaria um rasgo."
 
@@ -150,13 +150,13 @@ Ele disse-lhes: "Desprezastes aquele que vive e está na vossa presença, e fala
 54. Seus discípulos disseram-lhe: "A circuncisão é útil ou não?"    
 Ele disse-lhes: "Se fosse útil, o pai deles os produziria já circuncidados de sua mãe. Pelo contrário, a verdadeira circuncisão em espírito tornou-se proveitosa em todos os aspectos."
 
-55. Jesus disse: "Parabéns aos pobres, pois vosso é o reino do Céu."
+55. Jesus disse: "Parabéns aos pobres, pois vosso é o reino."
 
 56. Jesus disse: "Aquele que não odeia pai e mãe não pode ser meu discípulo, e aquele que não odeia irmãos e irmãs e não carrega a cruz como eu, não será digno de mim."
 
 57. Jesus disse: "Aquele que chegou a conhecer o mundo descobriu um cadáver, e daquele que descobriu um cadáver, o mundo não é digno."
 
-58. Jesus disse: "O reino do Pai é como uma pessoa que tem [boa] semente. Seu inimigo veio durante a noite e semeou joio entre a boa semente. A pessoa não deixou que os trabalhadores arrancassem o joio, mas disse-lhes: 'Não, caso contrário poderíeis ir arrancar o joio e arrancar o trigo junto com ele.' Pois no dia da colheita o joio estará visível e será arrancado e queimado."
+58. Jesus disse: "O reino é como uma pessoa que tem [boa] semente. Seu inimigo veio durante a noite e semeou joio entre a boa semente. A pessoa não deixou que os trabalhadores arrancassem o joio, mas disse-lhes: 'Não, caso contrário poderíeis ir arrancar o joio e arrancar o trigo junto com ele.' Pois no dia da colheita o joio estará visível e será arrancado e queimado."
 
 59. Jesus disse: "Parabéns à pessoa que trabalhou arduamente e encontrou a vida."
 
@@ -208,7 +208,7 @@ Ele voltou-se para os seus discípulos e disse-lhes: "Eu não sou um divisor, so
 
 76. Jesus disse: "Há muitos parados à porta, mas aqueles que estão sós entrarão na câmara nupcial."
 
-77. Jesus disse: "O reino do Pai é como um mercador que tinha um estoque de mercadorias e encontrou uma pérola. Esse mercador era prudente; vendeu as mercadorias e comprou a pérola única para si. Assim também convosco, buscai o seu tesouro que é infalível, que é duradouro, onde nenhuma traça entra para comer e nenhum verme destrói."
+77. Jesus disse: "O reino é como um mercador que tinha um estoque de mercadorias e encontrou uma pérola. Esse mercador era prudente; vendeu as mercadorias e comprou a pérola única para si. Assim também convosco, buscai o seu tesouro que é infalível, que é duradouro, onde nenhuma traça entra para comer e nenhum verme destrói."
 
 78. Jesus disse: "Eu sou a luz que está sobre todas as coisas. Eu sou tudo: de mim tudo surgiu e a mim tudo chegou. Rachai um pedaço de madeira; eu estou lá. Levantai a pedra, e ali me encontrareis."
 
@@ -221,7 +221,7 @@ Ele disse [a ela]: "Felizes aqueles que ouviram a palavra do Pai e verdadeiramen
 
 82. Jesus disse: "Que aquele que se tornou rico reine, e que aquele que tem poder renuncie a ele."
 
-83. Jesus disse: "Quem está perto de mim está perto do fogo, e quem está longe de mim está longe do reino (do Pai)."
+83. Jesus disse: "Quem está perto de mim está perto do fogo, e quem está longe de mim está longe do reino."
 
 84. Jesus disse: "As imagens são visíveis para as pessoas, mas la luz dentro delas está oculta na imagem da luz do Pai. Ele será revelado, mas a sua imagem está oculta pela sua luz."
 
@@ -250,11 +250,11 @@ Ele disse-lhes: "Examinais a face do céu e da terra, mas não chegastes a conhe
 
 96. [Jesus disse]: "Se tendes dinheiro, não o empresteis a juros. Pelo contrário, dai-o a alguém de quem não o recebereis de volta."
 
-97. Jesus [disse]: "O reino do Pai é como [uma] mulher. Ela pegou um pouco de fermento, [escondeu-o] na massa e fez grandes pães. Quem tiver dois ouvidos aqui, que ouça!"
+97. Jesus [disse]: "O reino é como [uma] mulher. Ela pegou um pouco de fermento, [escondeu-o] na massa e fez grandes pães. Quem tiver dois ouvidos aqui, que ouça!"
 
-98. Jesus disse: "O reino do [Pai] é como uma mulher que carregava um [vaso] cheio de farinha. Enquanto ela caminhava por uma estrada distante, a alça do vaso quebrou e a farinha derramou atrás dela [ao longo] da estrada. Ela não sabia; não tinha notado o problema. Quando chegou à sua casa, pousou o vaso e descobriu que estava vazio."
+98. Jesus disse: "O reino é como uma mulher que carregava um [vaso] cheio de farinha. Enquanto ela caminhava por uma estrada distante, a alça do vaso quebrou e a farinha derramou atrás dela [ao longo] da estrada. Ela não sabia; não tinha notado o problema. Quando chegou à sua casa, pousou o vaso e descobriu que estava vazio."
 
-99. Jesus disse: "O reino do Pai é como uma pessoa que queria matar alguém poderoso. Enquanto ainda estava em casa, desembainhou a sua espada e enterrou-a na parede para saber se a sua mão seria firme. Então matou o poderoso."
+99. Jesus disse: "O reino é como uma pessoa que queria matar alguém poderoso. Enquanto ainda estava em casa, desembainhou a sua espada e enterrou-a na parede para saber se a sua mão seria firme. Então matou o poderoso."
 
 100. Os discípulos disseram-lhe: "Teus irmãos e tua mãe estão lá fora."    
 Ele disse-lhes: "Aqueles que estão aqui e fazem o que meu Pai quer são meus irmãos e minha mãe. Eles são os que entrarão no reino de meu Pai."
@@ -275,11 +275,11 @@ Jesus disse: "Que pecado cometi, ou em que fui vencido? Pelo contrário, quando 
 
 107. Jesus disse: "Quando fizerdes dos dois um, vos tornareis filhos de Adão, e quando disserdes: 'Montanha, move-te daqui!', ela se moverá."
 
-108. Jesus disse: "O reino (do Pai) é como um pastor que tinha cem ovelhas. Uma delas, a maior, se extraviou. Ele deixou as noventa e nove e procurou por aquela uma até encontrá-la. Depois de ter trabalhado arduamente, disse à ovelha: 'Eu te amo mais do que às noventa e nove.'"
+108. Jesus disse: "O reino é como um pastor que tinha cem ovelhas. Uma delas, a maior, se extraviou. Ele deixou as noventa e nove e procurou por aquela uma até encontrá-la. Depois de ter trabalhado arduamente, disse à ovelha: 'Eu te amo mais do que às noventa e nove.'"
 
 109. Jesus disse: "Aquele que beber da minha boca se tornará como eu; eu mesmo me tornarei essa pessoa, e as coisas ocultas ser-lhe-ão reveladas."
 
-110. Jesus disse: "O reino (do Pai) é como uma pessoa que tinha um tesouro escondido em seu campo, mas não o sabia. E [quando] morreu, deixou-o para o seu [filho]. O filho também não [sabia] disso. Ele assumiu o campo e o vendeu. O comprador foi arar, [descobriu] o tesouro e começou a emprestar dinheiro a juros a quem desejava."
+110. Jesus disse: "O reino é como uma pessoa que tinha um tesouro escondido em seu campo, mas não o sabia. E [quando] morreu, deixou-o para o seu [filho]. O filho também não [sabia] disso. Ele assumiu o campo e o vendeu. O comprador foi arar, [descobriu] o tesouro e começou a emprestar dinheiro a juros a quem desejava."
 
 111. Jesus disse: "Que aquele que encontrou o mundo, e se tornou rico, renuncie ao mundo."
 
@@ -288,20 +288,51 @@ Jesus disse: "Que pecado cometi, ou em que fui vencido? Pelo contrário, quando 
 113. Jesus disse: "Maldita seja a carne que depende da alma. Maldita seja a alma que depende da carne."
 
 114. Seus discípulos disseram-lhe: "Quando virá o reino?"    
-"Não virá por se ficar esperando por ele. Não se dirá: 'Vejam, está aqui!' ou 'Vejam, está lá!' Pelo contrário, o reino do Pai está espalhado sobre a terra, e as pessoas não o veem."
+"Não virá por se ficar esperando por ele. Não se dirá: 'Vejam, está aqui!' ou 'Vejam, está lá!' Pelo contrário, o reino está espalhado sobre a terra, e as pessoas não o veem."
 
-[Ditado provavelmente adicionado à coleção original em uma data posterior:]   
+_[Ditado provavelmente adicionado à coleção original em uma data posterior:]_   
 114. Simão Pedro disse-lhes: "Faça com que Maria nos deixe, pois as mulheres não merecem a vida."  
-Jesus disse: "Vejam, eu a guiarei para torná-la homem, para que ela também se torne um espírito vivo semelhante a vós, homens. Pois toda mulher que se fizer homem entrará no reino do Céu."
+Jesus disse: "Vejam, eu a guiarei para torná-la homem, para que ela também se torne um espírito vivo semelhante a vós, homens. Pois toda mulher que se fizer homem entrará no reino."
 
 ---
+## Considerações sobre o Logion 114: Androginia Espiritual e Escatologia do Ser
+
+O encerramento do Evangelho de Tomé através do _logion 114_ constitui um dos maiores desafios hermenêuticos para a exegese contemporânea. O diálogo dramático entre Simão Pedro — que personifica a corrente eclesiástica e institucional, frequentemente associada à exclusão de figuras femininas na liderança primeva — e Jesus introduz uma proposição que, sob uma leitura literal e anacrônica, assemelha-se a uma declaração de teor misógino. No entanto, a análise filológica do texto copta e o mapeamento das correntes heterodoxas do século II revelam que a transformação da mulher em "homem" opera como uma metáfora técnica de unificação ontológica, distante das categorias biológicas de gênero.
+
+No gnosticismo, particularmente nas vertentes alexandrinas e sírias, o estado de cisão da humanidade é visto como a raiz do exílio espiritual na matéria. A criação do ser humano corpóreo repousa sobre a fragmentação de um androginogênio primordial (o _Anthropos_ celeste). Sob essa ótica, o "feminino" é frequentemente associado ao mundo do devir, da procriação e da mortalidade — o princípio que multiplica as almas na armadilha do cosmo material (_hyle_). Inversamente, o "masculino" denota o intelecto puro (_nous_), a imutabilidade e o espírito (_pneuma_).
+
+Portanto, quando o Jesus de Tomé afirma que "guiará" Maria para "torná-la homem", o texto evoca o conceito de _monachos_ (o indivíduo unificado ou solitário), amplamente difundido ao longo de toda a obra (como visto nos ditados 4, 22 e 75). Tornar-se homem significa transcender a dualidade imposta pela carne. O Ditado 22 explicita esse mecanismo teológico ao propor a dissolução dos opostos: "quando fizerdes o masculino e o feminino em um só, de modo que o masculino não seja masculino nem o feminino seja feminino".
+
+A promessa de que a mulher se tornará um "espírito vivo" (_pneuma etonh_) indica que, no Reino, a identidade biológica é absorvida pela mônada espiritual. O gnosticismo thomasino não propõe a subordinação do gênero feminino ao masculino em termos sociológicos; antes, postula que a entrada na esfera divina exige a superação de toda polaridade. A crítica histórica, portanto, deve interpretar o _logion_ 114 como uma formulação metafórica de sua soteriologia: a superação da divisão adâmica e o retorno à integridade primordial do ser.
+
+_— B.Z. (cyprianscafe)_
+
+---
+
 <details>
   <summary>Tags e outras nerdices</summary>
   
   ### Dados de Arquivo
-  - **Categoria Secundária:** Evangelhos Apócrifos / Manuscritos de Nag Hammadi / Tradição de Tomé / Gnosticismo Primitivo
-  - **Manuscrito de Origem:** O Evangelho de Tomé
-  - **PA Source:** N/A
-  - **Palavras-chave adicionais:** Fragmentos de Oxirrinco, Logia de Jesus, Dídimo Judas Tomé, Atos de Tomé, Cristianismo Primitivo, Ditados Secretos
+  - **Formato do Material:** Texto Íntegro / Antologia de ditados
+  - **Linhagem/Tradição:** Tradição de Tomé / Gnosticismo
+  - **Período Histórico:** Século II d.C. para a composição do texto (embora alguns estudiosos defendam um núcleo do século I d.C.). O manuscrito copta sobrevivente data do século IV d.C. (~340 d.C.).
+  - **Autor:** Anônimo (atribuído pseudoepigraficamente a Dídimo Judas Tomé)
+  - **Manuscrito de Origem:** Códice II da Biblioteca de Nag Hammadi (versão completa em copta) e Papiros de Oxirrinco (_P.Oxy._ 1, 654 e 655, fragmentos em grego).
+  - **Idioma Original:** Grego>Inglês
+  - **Região:** Síria
+  - **Grau de Confiabilidade:** Fonte Primária Acadêmica
+  
+  ### Bastidores da Tradução
+  - **Data da Tradução:** N/A
+  - **Projeto:** _Chronos_ (FoF)
+  - **Status do Texto:** Traduzido integralmente (Concluído)
+
+  ### Conexões e Busca
+  - **Categoria Secundária:** Apócrifos do Novo Testamento / Literatura Sapiencial do Cristianismo Primitivo
+  - **Tópicos Transversais:** Teologia Mística, Arqueologia Bíblica, Tradição Oral, Ascetismo Sírio, Filosofia Helenística, Monismo Espiritual
+  - **Tags Principais:** Evangelho de Tomé, Dídimo Judas Tomé, Nag Hammadi, Oxirrinco, Ditados de Jesus, Reino Interior, Tiago o Justo, Gnosticismo, Hino da Pérola
+  - **Tags Adicionais:** Papirologia, Cristianismo Heterodoxo, Logia de Jesus, Teologia da Luz, Auto-conhecimento, Pseudoepigrafia, Tradição Síria, Ascetismo
+
+💬 *Gostaria de ver um texto específico traduzido ou catalogado por aqui? Pedidos de tradução e buscas de fontes estão sempre abertos! Envie sua sugestão no meu [Ask Box (Cyprian's Cafe)](https://cyprianscafe.tumblr.com/askme).*
   
 </details>
