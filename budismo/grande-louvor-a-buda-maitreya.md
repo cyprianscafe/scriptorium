@@ -252,9 +252,12 @@ Com uma mente desapegada e livre de expectativas.
   ### Dados de Arquivo
   - **Categoria Secundária:** Poesia Devocional / Preces e Louvores (Gati)
   - **Manuscrito de Origem:** O Grande Louvor ao Buda Maitreya (originalmente composto no eremitério de Lho Brag)
+  - **Linhagem/Tradição:** Budismo Tibetano / Tradição Gelug (escola fundada pelo autor, Tsongkhapa).
+  - **Período Histórico:** Século XIV / Literatura Tibetana Clássica (Composto em 1395).
   - **Autor:** Je Lama Tsongkhapa
   - **PA Source:** BS-2
   - **Data da tradução:** N/A
+  - **Status do Texto:** Tradução Integral (Sem omissões).
   - **Idioma original:** Tibetano>Inglês>Português
   - **Palavras-chave adicionais:** Buda Maitreya, Tsongkhapa, Tushita, Compaixão, Renascimento, Samsara, Budismo Tibetano, Gelug, Impermanência, Práticas de Purificação
   
