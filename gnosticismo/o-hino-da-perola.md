@@ -711,16 +711,33 @@ O Hino de Judas Tomé, o Apóstolo,
 que ele proferiu na prisão, está terminado."
 
 ---
+
 <details>
   <summary>Tags e outras nerdices</summary>
   
   ### Dados de Arquivo
-- **Categoria Secundária:** Poesia Gnóstica / Apócrifos do Novo Testamento
-- **Manuscrito de Origem:** Brit. Mus. Add. 14645 (texto siríaco); C. Vallicellanus B. 35 (versão grega)
-- **Autor:** Atribuído tradicionalmente a Bardesanes (Bardaisan) ou a um poeta bardesanista
-- **PA Source:** G.R.S. Mead (*The Gnostic Crucifixion* / *Echoes from the Gnosis*) e William Wright (*Apocryphal Acts of the Apostles*)
-- **Data da tradução:** N/A
-- **Idioma original:** Siríaco Antigo (com versões posteriores em Grego)>Inglês
-- **Palavras-chave adicionais:** Atos de Tomé, Hino da Alma, Manto de Glória, Gnosticismo Sírio, Gnose, Literatura Apócrifa. 
+  - **Formato do Material:** Capítulo de Livro / Poema Religioso
+  - **Linhagem/Tradição:** Gnosticismo Sírio
+  - **Período Histórico:** Século II d.C. ao Século III d.C. (comumente datado entre 150 d.C. e 224 d.C., antes da queda da dinastia Parta)
+  - **Autor:** Atribuído historicamente ao bardo e filósofo gnóstico Bardesanes (Bardaisan de Edessa)
+  - **Manuscrito de Origem:** Codex Britannicus Museum Add. 14645 (para o texto siríaco, datado de 936 d.C.); Codex Vallicellanus B. 35 (para a versão grega de Bonnet)
+  - **Idioma Original:** Siríaco Antigo
+  - **Região:** Síria
+  - **Grau de Confiabilidade:** Fonte Primária Acadêmica
+  
+  ### Bastidores da Tradução
+  - **Data da Tradução:** N/A
+  - **Projeto:** N/A
+  - **Status do Texto:** Traduzido integralmente (Concluído)
+  - **Ações Pendentes:** (Correções, notas importantes, mudanças de formatação, erros de tradução que precisam ser corrigidos, termos que poderiam ser traduzidos de forma mais efetiva, etc.)
+  - **Notas de Tradução/Desafios:** A primeira versão opta por uma cadência mais poética e solene (_"Manto Glorioso", "Serpente de respiração ruidosa"_), enquanto a segunda (baseada na tradução de William Wright) adota um tom mais bruto e literal. Há também divergências na tradução de termos mineralógicos do siríaco antigo, como a oscilação entre "Ágatas", "Ópalas" e "Rubis" para designar as joias do Manto, exigindo uma futura revisão crítica. Decidi traduzir "como está", principalmente por priorizar a disponibilidade das duas versões em português. Talvez no futuro eu faça um trabalho melhor. Talvez. Quem sabe?
+
+  ### Conexões e Busca
+  - **Categoria Secundária:** Apócrifos do Novo Testamento / Literatura Poética Siríaca
+  - **Tópicos Transversais:** A queda da alma na matéria, amnésia da alma, vestimenta celestial, criptografia teológica em rotas comerciais partas
+  - **Tags Principais:** Hino da Pérola, Hino da Alma, Atos de Tomé, Egito, Serpente, Manto de Glória, Carta do Rei, Maishan, Sarbãg, Babel, Pártia, Bardesanes
+  - **Tags Adicionais:** Soteriologia gnótica, Metáfora da Vestimenta, Poesia Siríaca, Cristianismo Primitivo, Iluminismo Interior, Literatura de Prisão, Dualismo, Misticismo Oriental
+
+💬 *Gostaria de ver um texto específico traduzido ou catalogado por aqui? Pedidos de tradução e buscas de fontes estão sempre abertos! Envie sua sugestão no meu [Ask Box (Cyprian's Cafe)](https://cyprianscafe.tumblr.com/askme).*
   
 </details>
