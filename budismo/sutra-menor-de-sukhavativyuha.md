@@ -46,6 +46,8 @@ Tendo o Buda pregado este Sutra, Shariputra e os Bhikshus, e os Devas, homens, A
 <details>
   <summary>Tags e outras nerdices</summary>
   
+**Agradecimento especial ao irmão Harsh H., de Pune, Índia, por ajudar com muitos termos difíceis em sânscrito.**
+  
   ### Dados de Arquivo
   - **Formato do Material:** Texto Íntegro
   - **Linhagem/Tradição:** Budismo Mahayana / Terra Pura
@@ -62,14 +64,12 @@ Tendo o Buda pregado este Sutra, Shariputra e os Bhikshus, e os Devas, homens, A
   - **Status do Texto:** Traduzido integralmente (Concluído)
   - **Shelfmark ID:** SC-BUD-001
 
-  **Agradecimento especial ao irmão Harsh H., de Pune, Índia, por ajudar com muitos termos difíceis em sânscrito.**
-
   ### Conexões e Busca
   - **Categoria Secundária:** Escatologia Budista, Soteriologia Mahayana, Práticas Devocionais e Meditativas
   - **Tópicos Transversais:** Cosmologia budista (sistemas de mundos e terras puras), o papel dos pássaros e da música como veículos de transmissão do Dharma, e a natureza da transferência de mérito/salvação pela fé face ao carma individual
   - **Tags Principais:** Sukhavati, Buda Amitabha, Amitayus, Shariputra, Terra Pura, Kumarajiva, Arhat, Bodhisattva, Anuttara-samyaksambodhi, Cinco Corrupções, Shravasti
   - **Tags Adicionais:** Soteriologia, Budismo Chinês, Nembutsu, Recitação de Nome, Cosmologia Budista, Budismo Asiático, Meditação da Mente Unificada, Compaixão Universal
 
-💬 *Gostaria de ver um texto específico traduzido ou catalogado por aqui? Pedidos de tradução e buscas de fontes estão sempre abertos! Envie sua sugestão no meu [Ask Box (Cyprian's Cafe)](https://cyprianscafe.tumblr.com/askme).*
+<sub>💬 *Gostaria de ver um texto específico traduzido ou catalogado por aqui? Pedidos de tradução e buscas de fontes estão sempre abertos! Envie sua sugestão no meu [Ask Box (Cyprian's Cafe)](https://cyprianscafe.tumblr.com/askme).*</sub>
   
 </details>
