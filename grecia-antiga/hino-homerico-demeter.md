@@ -1,6 +1,14 @@
 <h1 align="center">✧ Hino Homérico a Deméter ✧</h1>
 
-**1**       Começo a cantar Deméter, a deusa santa dos belos cabelos.    
+<div align="center">
+
+<img width="960" height="1273" alt="image" src="https://github.com/user-attachments/assets/03e467bf-e222-4780-a3f9-a1cd4a66afa9" />
+
+<sub>_The Return of Persephone_, 1891 | Frederic Leighton</sub>
+
+</div>
+
+**1**       Começo a cantar sobre Deméter, a deusa santa dos belos cabelos.    
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;E também sua filha [Perséfone]. Aquela de esbeltos tornozelos, que por Hadês [1]   
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;foi apreendida. Foi entregue por Zeus, o trovão estrondoso, aquele que vê ao longe.  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Deméter não participou disso, ela da espada de ouro, ela que se gloria na colheita.  
@@ -484,7 +492,7 @@
 
 ---
 
-[1] Este nome designa tanto o deus do submundo como o próprio submundo.  
+<sub>[1] Este nome designa tanto o deus do submundo como o próprio submundo.  
 [2] Como se observa no texto, o narciso atua como o gatilho vegetal para a "porta-alçapão" que cede ao Submundo.   
 [3] Sobre a divisão do cosmos a ser partilhado pelos três irmãos (Zeus, Poseidon e Hades), cf. _Ilíada_, XV, 189-191.  
 [4] Isto é, com os mortos.  
@@ -519,7 +527,7 @@
 [33] Significado: 'o belo lugar da dança'.  
 [34] Os deuses são maiores que o tamanho da vida.  
 [35] Vejo aqui uma referência velada ao desenvolvimento final de todo o complexo religioso de Elêusis.  
-[36] O significado exato de _mérope_ é opaco na filologia; na tradição épica, costuma evocar o tema mitológico da antropogonia (a criação dos homens), qualificando-os como os seres de "voz articulada". 
+[36] O significado exato de _mérope_ é opaco na filologia; na tradição épica, costuma evocar o tema mitológico da antropogonia (a criação dos homens), qualificando-os como os seres de "voz articulada".  
 [37] Havia duas modalidades principais de oferecer carne às divindades: porções reservadas para o consumo comunhal/sacerdotale as partes destinadas à queima total (_holocausto_) no altar. Os deuses concedem a vegetação aos humanos, e estes retribuem com as oferendas de carne. Caso a humanidade pereça pela esterilidade da terra, o circuito de reciprocidade que sustenta o _tîmê_ (a honra devida) dos deuses olímpicos é quebrado.  
 [38] Suas asas douradas estão em seus calcanhares.  
 [39] Hermes recebe o título de _Argeifontes_ por ter decapitado o monstro de cem olhos, Argos. Filologicamente, a raiz argos transmite a ideia de rapidez e fulgor cintilante; logo, o epíteto Argeiphontês pode significar simultaneamente "o matador de Argos" e "aquele que mata com fulgor e rapidez".  
@@ -534,7 +542,7 @@
 [48] ​​É um princípio religioso que Deméter e Perséfone, por ocasião do reencontro de mãe e filha, são “de mente semelhante”.  
 [49] Um local de culto associado aos Mistérios de Elêusis e ao mito da primeira aragem. Deméter está aqui, na época: ver linhas 457-458.  
 [50] Existe uma lacuna na primeira parte desta linha.  
-[51] Os editores textuais costumam omitir a linha subsequente nos aparatos críticos, visto que ela replica de forma redundante e métrica os nomes de alguns dos reis que receberam a revelação dos mistérios e preceitos sagrados de Deméter.  
+[51] Os editores textuais costumam omitir a linha subsequente nos aparatos críticos, visto que ela replica de forma redundante e métrica os nomes de alguns dos reis que receberam a revelação dos mistérios e preceitos sagrados de Deméter.</sub>
 
 ---
 
@@ -570,6 +578,6 @@ Mudando de assunto, não exercito meus músculos gregos desde que estava fazendo
   - **Tags Principais:** Deméter, Perséfone, Hades, Zeus, Hermes, Elêusis, Metaneira, Demofonte, Celeu, Iambê, Hécate, Reia, Triptólemo, Eumolpo, thûmos, tîmê, menos, biâ, mêtis, alêtheia, olbios, romã, narciso, poejo, ciceon, Campo Rariano, Mistérios Eleusinos
   - **Tags Adicionais:** Rapto das Sabinas, Agricultura Primitiva, Divinização pelo Fogo, Teofania, Jejum Ritual, Catarse pelo Riso, Poesia Jâmbica, Culto Ctônico, Submundo Grego, Imortalidade Condicionada, Ciclo das Estações
 
-💬 *Gostaria de ver um texto específico traduzido ou catalogado por aqui? Pedidos de tradução e buscas de fontes estão sempre abertos! Envie sua sugestão no meu [Ask Box (Cyprian's Cafe)](https://cyprianscafe.tumblr.com/askme).*
+<sub>💬 *Gostaria de ver um texto específico traduzido ou catalogado por aqui? Pedidos de tradução e buscas de fontes estão sempre abertos! Envie sua sugestão no meu [Ask Box (Cyprian's Cafe)](https://cyprianscafe.tumblr.com/askme).*</sub>
   
 </details>
