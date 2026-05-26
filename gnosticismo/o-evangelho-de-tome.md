@@ -290,7 +290,7 @@ Jesus disse: "Que pecado cometi, ou em que fui vencido? Pelo contrário, quando 
 114. Seus discípulos disseram-lhe: "Quando virá o reino?"    
 "Não virá por se ficar esperando por ele. Não se dirá: 'Vejam, está aqui!' ou 'Vejam, está lá!' Pelo contrário, o reino está espalhado sobre a terra, e as pessoas não o veem."
 
-_[Ditado provavelmente adicionado à coleção original em uma data posterior:]_   
+<sub>_[Ditado provavelmente adicionado à coleção original em uma data posterior:]_</sub>   
 114. Simão Pedro disse-lhes: "Faça com que Maria nos deixe, pois as mulheres não merecem a vida."  
 Jesus disse: "Vejam, eu a guiarei para torná-la homem, para que ela também se torne um espírito vivo semelhante a vós, homens. Pois toda mulher que se fizer homem entrará no reino."
 
@@ -305,7 +305,7 @@ Portanto, quando o Jesus de Tomé afirma que "guiará" Maria para "torná-la hom
 
 A promessa de que a mulher se tornará um "espírito vivo" (_pneuma etonh_) indica que, no Reino, a identidade biológica é absorvida pela mônada espiritual. O gnosticismo thomasino não propõe a subordinação do gênero feminino ao masculino em termos sociológicos; antes, postula que a entrada na esfera divina exige a superação de toda polaridade. A crítica histórica, portanto, deve interpretar o _logion_ 114 como uma formulação metafórica de sua soteriologia: a superação da divisão adâmica e o retorno à integridade primordial do ser.
 
-_— B.Z. (cyprianscafe)_
+<sub>_— B.Z. (cyprianscafe)_</sub>
 
 ---
 
@@ -333,6 +333,6 @@ _— B.Z. (cyprianscafe)_
   - **Tags Principais:** Evangelho de Tomé, Dídimo Judas Tomé, Nag Hammadi, Oxirrinco, Ditados de Jesus, Reino Interior, Tiago o Justo, Gnosticismo, Hino da Pérola
   - **Tags Adicionais:** Papirologia, Cristianismo Heterodoxo, Logia de Jesus, Teologia da Luz, Auto-conhecimento, Pseudoepigrafia, Tradição Síria, Ascetismo
 
-💬 *Gostaria de ver um texto específico traduzido ou catalogado por aqui? Pedidos de tradução e buscas de fontes estão sempre abertos! Envie sua sugestão no meu [Ask Box (Cyprian's Cafe)](https://cyprianscafe.tumblr.com/askme).*
+<sub>💬 *Gostaria de ver um texto específico traduzido ou catalogado por aqui? Pedidos de tradução e buscas de fontes estão sempre abertos! Envie sua sugestão no meu [Ask Box (Cyprian's Cafe)](https://cyprianscafe.tumblr.com/askme).*</sub>
   
 </details>
