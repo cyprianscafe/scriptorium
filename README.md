@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-  <small>O acervo principal de traduções de fôlego do <b>Cyprian's Cafe</b>.</small>
+  <sub>O acervo principal de traduções de fôlego do <b>Cyprian's Cafe</b>.</sub>
 </p>
 
 ---
@@ -48,6 +48,6 @@ Se você tiver dúvidas sobre as escolhas de tradução de termos específicos e
 ---
 
 <p align="center">
-  <small><i>"Ben Zoma dizia: Quem é sábio? Aquele que aprende com todas as pessoas."</i><br>
-  — Pirkei Avot 4:1</small>
+  <sub><i>"Ben Zoma dizia: Quem é sábio? Aquele que aprende com todas as pessoas."</i><br>
+  — Pirkei Avot 4:1</sub>
 </p>
