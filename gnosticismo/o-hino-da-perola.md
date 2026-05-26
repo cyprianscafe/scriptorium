@@ -1,6 +1,6 @@
 # O Hino da Pérola
 
-### Introdução por G.R.S. Mead
+<sub>**Introdução por G.R.S. Mead**</sub>
 
 O título original deste belo Poema Gnóstico foi perdido, e hoje ele é geralmente referido como *O Hino da Alma*. Preuschen, no entanto, chama-o de *A Canção da Libertação* (*Das Lied von der Erlösung*); enquanto em meus *Fragments* (1900) atrevi-me a nomeá-lo *O Hino do Manto de Glória*. Aqui, também, prefiro manter este título, pois me parece o mais apropriado.
 
@@ -737,6 +737,6 @@ que ele proferiu na prisão, está terminado."
   - **Tags Principais:** Hino da Pérola, Hino da Alma, Atos de Tomé, Egito, Serpente, Manto de Glória, Carta do Rei, Maishan, Sarbãg, Babel, Pártia, Bardesanes
   - **Tags Adicionais:** Soteriologia gnótica, Metáfora da Vestimenta, Poesia Siríaca, Cristianismo Primitivo, Iluminismo Interior, Literatura de Prisão, Dualismo, Misticismo Oriental
 
-💬 *Gostaria de ver um texto específico traduzido ou catalogado por aqui? Pedidos de tradução e buscas de fontes estão sempre abertos! Envie sua sugestão no meu [Ask Box (Cyprian's Cafe)](https://cyprianscafe.tumblr.com/askme).*
+<sub>💬 *Gostaria de ver um texto específico traduzido ou catalogado por aqui? Pedidos de tradução e buscas de fontes estão sempre abertos! Envie sua sugestão no meu [Ask Box (Cyprian's Cafe)](https://cyprianscafe.tumblr.com/askme).*</sub>
   
 </details>
