@@ -1,5 +1,5 @@
 <h1 align="center">✧ O Grande Louvor ao Buda Maitreya ✧</h1>
-<p align="center"><i>por Je Lama Tsongkhapa no eremitério de Lho Brag em 1395.</i></p>
+<p align="center"><sub><i>por Je Lama Tsongkhapa no eremitério de Lho Brag em 1395.</i></sub></p>
 
 Que o fogo da grande amorosa bondade  
 Queime o combustível da raiva e do ódio;  
@@ -273,6 +273,6 @@ Com uma mente desapegada e livre de expectativas.
   - **Tags Principais:** Buda Maitreya, Je Lama Tsongkhapa, Tushita, Dharma, Compaixão, Sabedoria, Samsara, Reinos Infernais, Renascimento Superior, Equanimidade
   - **Tags Adicionais:** Budismo Tibetano, Gelug, Lhodrak, Poesia Budista, Práticas de Aspiração, Devoção, Escatologia Budista, Próximo Buda
 
-💬 *Gostaria de ver um texto específico traduzido ou catalogado por aqui? Pedidos de tradução e buscas de fontes estão sempre abertos! Envie sua sugestão no meu [Ask Box (Cyprian's Cafe)](https://cyprianscafe.tumblr.com/askme).*
+<sub>💬 *Gostaria de ver um texto específico traduzido ou catalogado por aqui? Pedidos de tradução e buscas de fontes estão sempre abertos! Envie sua sugestão no meu [Ask Box (Cyprian's Cafe)](https://cyprianscafe.tumblr.com/askme).*</sub>
   
 </details>
