@@ -325,6 +325,7 @@ A promessa de que a mulher se tornará um "espírito vivo" (_pneuma etonh_) indi
   ### Bastidores da Tradução
   - **Data da Tradução:** N/A
   - **Projeto:** _Chronos_ (FoF)
+  - **Shelfmark ID:** SC-GNO-001
   - **Status do Texto:** Traduzido integralmente (Concluído)
 
   ### Conexões e Busca
