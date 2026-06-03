@@ -98,6 +98,7 @@ Vigiai e orai para que não vos apegueis à carne, mas sim que vos liberteis do 
   ### Bastidores da Tradução
   - **Data da Tradução:** 11.2023
   - **Status do Texto:** Traduzido integralmente (Concluído)
+  - **Shelfmark ID:** SC-GNO-004
 
   ### Conexões e Busca
   - **Categoria Secundária:** Apócrifos do Novo Testamento
